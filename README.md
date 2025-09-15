@@ -2,8 +2,4 @@ sknsdijdlbdC
 dscD
 cDS
 dC
-dc
-ekhfdhfd
-dccdcs
-sdcsd
-sdcsdc
+dé isso mesmoo
